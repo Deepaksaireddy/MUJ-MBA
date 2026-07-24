@@ -1,1 +1,1 @@
-This is my Passion to have a Masters certificate in Administration from a well Esteemed University along side my ai-engineering-journey and this completes my day in studying and in long term it gives me enough knowledge to do a proper management
+This is my Passion to have a Masters certification in Administration from a well Esteemed University along side my ai-engineering-journey and this completes my day in studying and in long term it gives me enough knowledge to do a proper management
